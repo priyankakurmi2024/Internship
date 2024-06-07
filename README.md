@@ -1,1 +1,1 @@
-# Internship
+# Financial Analyst Internship at MTE
